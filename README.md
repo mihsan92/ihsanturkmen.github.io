@@ -1,1 +1,0 @@
-# Ihsan Turkmen
